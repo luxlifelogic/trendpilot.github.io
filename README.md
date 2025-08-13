@@ -1,1 +1,1 @@
-# trendpilot.github.i0
+# trendpilot.github.io
